@@ -8,6 +8,8 @@ https://www.godolphinandlatymer.com/wp-content/uploads/2024/12/The-Sunday-Times-
 
 # Mock Tests
 https://www.wcgs-sutton.co.uk/ptfa1/familiarisation-tests
+https://www.sgsptamocktests.com/
 
 # Mock Test from commercial 
 https://susandaughtreyeducation.com/mock_shop
+https://www.acelearning.org.uk/mock-exams
